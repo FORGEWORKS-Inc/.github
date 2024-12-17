@@ -9,6 +9,15 @@
 
 ---
 
+## **Get Started**
+
+Ready to enhance your revenue operations?  
+👉 [**Book a 30-Minute RevOps Strategy Call**](https://calendly.com/brantley-jnol/meeting)  
+
+For more information, visit our [**Services Page**](https://www.forgeworks.ai/services).
+
+---
+
 ## **Our Mission**
 
 At **ForgeWorks**, we are committed to increasing your revenue and reducing friction within your operations.  
@@ -47,15 +56,6 @@ Our impact-driven approach ensures we operate with the same urgency and outcomes
 
 > *"As our business matured, I relied on Brantley’s expertise to inform and build compensation plans, initiatives to help us scale like auto-renewal, and he led the strategy and day-to-day operations of our deal desk."*  
 > — **Sarah Wood**, VP of Customer Success, Hopin
-
----
-
-## **Get Started**
-
-Ready to enhance your revenue operations?  
-👉 [**Book a 30-Minute RevOps Strategy Call**](https://calendly.com/forgeworks/30min)  
-
-For more information, visit our [**Services Page**](https://www.forgeworks.ai/services).
 
 ---
 
